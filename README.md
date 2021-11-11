@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @3duXX
+- 👀 I’m interested in amogus
+- 🌱 I’m currently learning amogus
+- 💞️ I’m looking to collaborate on amogus
+- 📫 How to reach me: among us 
